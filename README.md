@@ -1,5 +1,5 @@
 I want to express my sincere gratitude for the opportunity to work on this assignment.
-I was little  short on time as there was another project to deal with, i tried my best to complete the assignment but i am assuring you
+I was little  short on time as there was another assignment to deal with, i tried my best to complete the assignment but i am assuring you
 that i can do much better than that.  
 
 The assignment leaned more towards being logic-oriented rather than structurally complex. 
